@@ -1,4 +1,3 @@
-# HALO HALO BANDUNG
+# NYONG BANYUMAS
 
-Bandung ibukota periangan
-Bandung banyak kenangan
+Ora ngapak ora kepenak
